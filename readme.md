@@ -2,4 +2,4 @@
 
 Crash course for Git
 
-welcome to Mcdonalds bruh
+welcome to Mcdonalds bruhhhhhhhhhhhhhhhhhhhhhhhhhhhhhh!
